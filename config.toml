@@ -1,0 +1,4 @@
+baseURL = "https://bestrecipe.vercel.app"
+languageCode = "en-us"
+title = "Best Recipe"
+theme = "z"

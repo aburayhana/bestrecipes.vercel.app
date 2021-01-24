@@ -1,0 +1,79 @@
+---
+description: "Steps to Make Favorite Fried Wonton Dumplings with Chrysanthemum Leaves Seasoned with Yuzu Pepper Paste"
+title: "Steps to Make Favorite Fried Wonton Dumplings with Chrysanthemum Leaves Seasoned with Yuzu Pepper Paste"
+slug: 3757-steps-to-make-favorite-fried-wonton-dumplings-with-chrysanthemum-leaves-seasoned-with-yuzu-pepper-paste
+date: 2020-12-02T03:19:22.856Z
+image: https://img-global.cpcdn.com/recipes/5988132664115200/751x532cq70/fried-wonton-dumplings-with-chrysanthemum-leaves-seasoned-with-yuzu-pepper-paste-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/5988132664115200/751x532cq70/fried-wonton-dumplings-with-chrysanthemum-leaves-seasoned-with-yuzu-pepper-paste-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/5988132664115200/751x532cq70/fried-wonton-dumplings-with-chrysanthemum-leaves-seasoned-with-yuzu-pepper-paste-recipe-main-photo.jpg
+author: Rhoda Romero
+ratingvalue: 4.9
+reviewcount: 23758
+recipeingredient:
+- "150 grams Minced meat of your choice"
+- "4 stalks Chrysanthemum leaves"
+- "10 cm Japanese leek"
+- "1 packages Wonton wrappers"
+- "1 tsp  Sake"
+- "2 tbsp  Shirodashi"
+- "2 tsp  Yuzu pepper paste"
+recipeinstructions:
+- "Finely chop up the chrysanthemum leaves and Japanese leek. Mix well with the minced meat and the ☆ ingredients."
+- "Wrap them as you like in wonton wrappers."
+- "When they turn golden brown, they&#39;re ready to eat."
+categories:
+- Recipe
+tags:
+- fried
+- wonton
+- dumplings
+
+katakunci: fried wonton dumplings 
+nutrition: 195 calories
+recipecuisine: American
+preptime: "PT28M"
+cooktime: "PT33M"
+recipeyield: "2"
+recipecategory: Dessert
+
+---
+
+
+![Fried Wonton Dumplings with Chrysanthemum Leaves Seasoned with Yuzu Pepper Paste](https://img-global.cpcdn.com/recipes/5988132664115200/751x532cq70/fried-wonton-dumplings-with-chrysanthemum-leaves-seasoned-with-yuzu-pepper-paste-recipe-main-photo.jpg)
+
+Hey everyone, I hope you are having an incredible day today. Today, I will show you a way to make a special dish, fried wonton dumplings with chrysanthemum leaves seasoned with yuzu pepper paste. One of my favorites food recipes. This time, I'm gonna make it a little bit tasty. This is gonna smell and look delicious.
+
+Fried wontons - Homemade, crispy and delicious wontons with simple everyday ingredients. They are under the big umbrella of Chinese dumplings and To make them into the pretty shape (far left in the above picture), just pull the two corners of the triangle. I&#39;d like to show you how to make filling for won-tons and dumplings. First, we&#39;re going to start with some ground pork.
+
+Fried Wonton Dumplings with Chrysanthemum Leaves Seasoned with Yuzu Pepper Paste is one of the most popular of recent trending meals on earth. It's appreciated by millions every day. It is easy, it's quick, it tastes delicious. Fried Wonton Dumplings with Chrysanthemum Leaves Seasoned with Yuzu Pepper Paste is something that I've loved my whole life. They're fine and they look wonderful.
+
+
+To get started with this recipe, we have to prepare a few components. You can cook fried wonton dumplings with chrysanthemum leaves seasoned with yuzu pepper paste using 7 ingredients and 3 steps. Here is how you can achieve it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Fried Wonton Dumplings with Chrysanthemum Leaves Seasoned with Yuzu Pepper Paste:
+
+1. Take 150 grams Minced meat of your choice
+1. Get 4 stalks Chrysanthemum leaves
+1. Take 10 cm Japanese leek
+1. Prepare 1 packages Wonton wrappers
+1. Take 1 tsp ☆ Sake
+1. Take 2 tbsp ☆ Shiro-dashi
+1. Prepare 2 tsp ☆ Yuzu pepper paste
+
+
+Cover the remaining wrappers with a damp cloth to keep them. Wontons are a type of Chinese dumpling. Hoành Thánh is the Vietnamese equivalent and they are There are many ways to cook wontons. Green Yuzu Kosho is made from three ingredients: yuzu zest, ground green chile peppers and sea salt. 
+
+<!--inarticleads2-->
+
+##### Instructions to make Fried Wonton Dumplings with Chrysanthemum Leaves Seasoned with Yuzu Pepper Paste:
+
+1. Finely chop up the chrysanthemum leaves and Japanese leek. Mix well with the minced meat and the ☆ ingredients.
+1. Wrap them as you like in wonton wrappers.
+1. When they turn golden brown, they&#39;re ready to eat.
+
+
+Hoành Thánh is the Vietnamese equivalent and they are There are many ways to cook wontons. Green Yuzu Kosho is made from three ingredients: yuzu zest, ground green chile peppers and sea salt. With a slightly coarse texture, similar to pesto, Yuzu Kosho leaves a distinctly sour/salty/spicy flavor lingering on the palate. A specialty of the cuisine of Kyushu, a region in southeastern Japan. A simple, light &#39;Chinese dumpling&#39; classic.whether in soup or fried, wontons will always. 
+
+So that is going to wrap it up for this special food fried wonton dumplings with chrysanthemum leaves seasoned with yuzu pepper paste recipe. Thank you very much for your time. I'm sure that you will make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

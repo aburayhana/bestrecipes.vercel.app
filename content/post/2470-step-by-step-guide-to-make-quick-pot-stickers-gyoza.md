@@ -1,0 +1,94 @@
+---
+description: "Step-by-Step Guide to Make Quick Pot-stickers (Gyoza)"
+title: "Step-by-Step Guide to Make Quick Pot-stickers (Gyoza)"
+slug: 2470-step-by-step-guide-to-make-quick-pot-stickers-gyoza
+date: 2020-08-14T05:16:56.322Z
+image: https://img-global.cpcdn.com/recipes/4f9706e305196056/751x532cq70/pot-stickers-gyoza-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/4f9706e305196056/751x532cq70/pot-stickers-gyoza-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/4f9706e305196056/751x532cq70/pot-stickers-gyoza-recipe-main-photo.jpg
+author: Bryan Garza
+ratingvalue: 4.8
+reviewcount: 32278
+recipeingredient:
+- " Some wonton wrappers dont be a jackass just buy them"
+- " about 12 a pound of any meat you want ground or chopped fine if using whole beef primalsubprimal I recommend cooking ahead of time"
+- " Baby Bok choy chopped fine"
+- "3-4 cloves garlic minced"
+- "1 big knob of ginger diced fine"
+- " Juice of a lime"
+- "1 spoon sambal garlicchili paste"
+- "1/2 bunch chopped green onion"
+- "1 glug of soy sauce mirin rice vinegar"
+- " light drizzle of toasted sesame oil"
+- " Pepper red pepper flake"
+- " vegetable oil"
+- "2-3 tablespoons water"
+- "1 knob butter"
+recipeinstructions:
+- "Combine all of the ingredients with the exception of water, oil, butter and the won ton wrappers (smartass). Set aside in the fridge covered in plastic (this can be done ahead of time)"
+- "Place a small spoonful (1 teaspoon-ish?) of the filling in the center of a won ton wrapper. Dip your finger in some warm water and run along the edges of the wrapper. You don&#39;t want it sopping wet, just sticky. Bring up all of the corners, working in a counter-clockwise fashion (it doesn&#39;t matter, thats just how I do it) and pinch the seams together, ensuring you press out all of the air, and the pot-stickers are sealed completely. Set these aside under a damp kitchen towel until ready."
+- "Bring a small drizzle of oil to temperature over medium/medium-high heat and place in the pot-stickers. Let fry until the bottoms begin to turn golden brown. Once achieved, dump in approximately 2-3 tablespoons of water and immediately cover. Steam for 3 minutes."
+- "Blot out any excess water and quickly add a bit of butter. Fry for a bit longer, continually checking the bottoms of the won tons to ensure you are not burning them (ride the heat throttle to compensate). Once they are fried to your liking, remove to a paper towel lined plate and serve with soy sauce and more sliced green onion!"
+categories:
+- Recipe
+tags:
+- potstickers
+- gyoza
+
+katakunci: potstickers gyoza 
+nutrition: 150 calories
+recipecuisine: American
+preptime: "PT40M"
+cooktime: "PT41M"
+recipeyield: "3"
+recipecategory: Dinner
+
+---
+
+
+![Pot-stickers (Gyoza)](https://img-global.cpcdn.com/recipes/4f9706e305196056/751x532cq70/pot-stickers-gyoza-recipe-main-photo.jpg)
+
+Hello everybody, it's me, Dave, welcome to my recipe site. Today, I'm gonna show you how to make a special dish, pot-stickers (gyoza). One of my favorites. This time, I'm gonna make it a little bit unique. This will be really delicious.
+
+
+
+Pot-stickers (Gyoza) is one of the most popular of recent trending meals in the world. It's appreciated by millions daily. It is simple, it is fast, it tastes delicious. Pot-stickers (Gyoza) is something which I have loved my whole life. They're fine and they look wonderful.
+
+
+To get started with this recipe, we have to first prepare a few ingredients. You can have pot-stickers (gyoza) using 14 ingredients and 4 steps. Here is how you can achieve that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Pot-stickers (Gyoza):
+
+1. Take  Some won-ton wrappers (don&#39;t be a jackass, just buy them)
+1. Get  about 1/2 a pound of any meat you want (ground or chopped fine) (if using whole beef primal/subprimal, I recommend cooking ahead of time)
+1. Make ready  Baby Bok choy, chopped fine
+1. Take 3-4 cloves garlic minced
+1. Get 1 big knob of ginger, diced fine
+1. Prepare  Juice of a lime
+1. Make ready 1 spoon sambal (garlic-chili paste)
+1. Prepare 1/2 bunch chopped green onion
+1. Prepare 1 glug of soy sauce, mirin, rice vinegar
+1. Make ready  light drizzle of toasted sesame oil
+1. Prepare  Pepper, red pepper flake
+1. Get  vegetable oil
+1. Take 2-3 tablespoons water
+1. Prepare 1 knob butter
+
+
+
+
+<!--inarticleads2-->
+
+##### Instructions to make Pot-stickers (Gyoza):
+
+1. Combine all of the ingredients with the exception of water, oil, butter and the won ton wrappers (smartass). Set aside in the fridge covered in plastic (this can be done ahead of time)
+1. Place a small spoonful (1 teaspoon-ish?) of the filling in the center of a won ton wrapper. Dip your finger in some warm water and run along the edges of the wrapper. You don&#39;t want it sopping wet, just sticky. Bring up all of the corners, working in a counter-clockwise fashion (it doesn&#39;t matter, thats just how I do it) and pinch the seams together, ensuring you press out all of the air, and the pot-stickers are sealed completely. Set these aside under a damp kitchen towel until ready.
+1. Bring a small drizzle of oil to temperature over medium/medium-high heat and place in the pot-stickers. Let fry until the bottoms begin to turn golden brown. Once achieved, dump in approximately 2-3 tablespoons of water and immediately cover. Steam for 3 minutes.
+1. Blot out any excess water and quickly add a bit of butter. Fry for a bit longer, continually checking the bottoms of the won tons to ensure you are not burning them (ride the heat throttle to compensate). Once they are fried to your liking, remove to a paper towel lined plate and serve with soy sauce and more sliced green onion!
+
+
+
+
+So that's going to wrap this up for this special food pot-stickers (gyoza) recipe. Thank you very much for your time. I'm confident that you can make this at home. There is gonna be interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!
